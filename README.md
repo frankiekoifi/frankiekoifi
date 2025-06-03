@@ -32,9 +32,9 @@ I’m excited to be part of this evolution—building and designing software tha
 ## 🌐 Connect with Me
 Email; francisochieng700@gmail.com
 
-[![LinkedIn](https://img.shields.io/badge/-LinkedIn-0077B5?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/frankiekoifi)
-[![Twitter](https://img.shields.io/badge/-Twitter-1DA1F2?logo=twitter&logoColor=white)](https://twitter.com/frankiekoifi)
-[![Instagram](https://img.shields.io/badge/-Instagram-E4405F?logo=instagram&logoColor=white)](https://instagram.com/frankiekoifi)
+[![LinkedIn](https://img.shields.io/badge/-LinkedIn-0077B5?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/francis-ochieng-769832270 )
+[![Twitter](https://img.shields.io/badge/-Twitter-1DA1F2?logo=twitter&logoColor=white)](https://x.com/Franko71734917?t=n9D6yoB9ZHIiJqrrzRU4Ig&s=09)
+[![Instagram](https://img.shields.io/badge/-Instagram-E4405F?logo=instagram&logoColor=white)](https://www.instagram.com/_frankie_ama?igsh=dmZmOGJzZ3VjZnBr)
 
 ---
 
